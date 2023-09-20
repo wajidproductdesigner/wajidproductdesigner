@@ -25,5 +25,5 @@ I'm always excited to connect with fellow designers, developers, and anyone pass
 
 📬 Contact:
 📧 Email: wajidu893@gmail.com
-🌐 Portfolio: https://www.behance.net/wajidproductdesigner.com
+🌐 Portfolio: https://www.behance.net/wajidproductdesigner
 📱 LinkedIn: https://www.linkedin.com/in/farhanuiux/
